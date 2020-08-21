@@ -22,7 +22,7 @@ Matt Redman
     Worship His Holy name
     Sing like never before
     Oh my soul
-        I'll worship Your Holy name
+    I'll worship Your Holy name
 
     You're rich in love
     And You're slow to anger
